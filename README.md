@@ -1,4 +1,4 @@
-- 👋 Hi, I’m analice
+oi, eu sou a analice ;3
   
 
 
